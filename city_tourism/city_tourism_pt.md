@@ -15,13 +15,16 @@ Sim, é uma hamburgueria num posto de gasolina. Mas é considerado por muitos o 
 #### Books and beers
 Para aqueles que gostam de boas cervejas, boa comida e boa vista. Bar temático para os amantes da leitura e da boa bebida, fica ás margens da lagoa da conceição, de frente para uma marina. Com certeza, imperdível.
 
+![Books and beers](http://bloglovers.com.br/wp-content/uploads/2014/01/booksbeers.jpg)
+
 R. Sen. Ivo D Aquino, 103 (Lagoa da Conceição)
 
 #### Zé Mané
 Localizado na Orla Gastronômica de Coqueiros, o bar tem ambiente agradável e vista bonita. A capirinha de limão siciliano deve ser conferida! Outras capirinhas diferentes agregam ao cardápio.
 
-Rua Des. Pedro Silva, 2360 (Coqueiros)
+![Zé Mané](http://revistafloripa.com.br/wp-content/uploads/2014/09/boteco-ze-mane-coqueiros1-620x417.jpg)
 
+Rua Des. Pedro Silva, 2360 (Coqueiros)
 
 ## Para beber (low-cost)
 
@@ -102,6 +105,8 @@ Inicialmente, os produtos vindos da região continental e das freguesias eram ex
 Sofreu vários incêndios, voltando sempre a ser reconstruído, pois afinal, além de ser um importante ponto de comércio é um patrimônio da Ilha de Santa Catarina 
 Está aberto de segunda a sexta-feira das 9h às 19h e sábados das 9h às 12h. Não abre aos domingos. (CONFIRMAR)
 
+![Mercado publico](http://www.virtualfloripa.com.br/images/postagens/mercado-novo.jpg)
+
 #### Praça XV de Novembro
 
 Na planície próxima ao mar, o bandeirante Francisco Dias Velho fundou, em 1662, a Vila Nossa Senhora do Desterro. Este é o local onde está a Praça XV de Novembro. Foi a partir dali que a cidade começou a se expandir e é o marco principal do Centro Histórico, com suas construções arquitetônicas originais preservadas.
@@ -111,6 +116,8 @@ Na Praça XV está o Monumento em Honra aos Heróis Mortos na Guerra do Paraguai
 Arborizada durante o século XIX, a praça recebeu árvores de grande porte, como palmeiras imperiais, ficus indianos e cravos da Índia, mas com certeza a vedete arbórea é a Figueira Centenária. Diz-se que ela nasceu em 1871 em um jardim que existia em frente à Igreja Matriz e que foi transplantada para o seu lugar atual em 1891.
 
 Tradicional, cantada em prosa e verso pelos artistas ilhéus, traz consigo superstições, como a de contorná-la várias vezes para atrair casamento e fortuna. Se a simpatia funciona ou não, só testando para saber, mas não deixe de aproveitar sua sombra fresca, que abriga vários banquinhos onde os aposentados da cidade descansam e jogam conversa fora.
+
+![Praça XV](https://c1.staticflickr.com/7/6121/5996061899_cc5720e639_b.jpg)
 
 #### Palácio Cruz e Souza (Museu Histórico de Santa Catarina)
 Vale a pena conhecer  o sobrado colonial que foi construído para ser o Palácio do Governo do Estado. Embora não se saiba a exata data da construção, há registros do prédio no ano de 1785.
@@ -123,11 +130,15 @@ As escadarias são em mármore de Carrara, os florões do teto homenageiam os mu
 
 É uma das principais atrações do Centro Histórico.
 
+![Palacio](http://static.panoramio.com/photos/large/102864797.jpg)
+
 (ingressos: R$ 5,00 por pessoa e gratuito para crianças e maiores de 65 anos)
 
 #### Mirante do Morro da Cruz
 
 O Morro da Cruz é um dos melhores pontos para se contemplar uma vista panorâmica de Florianópolis, permitindo uma visão privilegiada das duas baías, das pontes que ligam a ilha ao continente e  dos bairros na região continental. Seu pico se encontra a 285 m de altura e, em dias claros, pode-se avistar também grande parte dos municípios da grande Florianópolis, como Palhoça, São José e Biguaçu. O principal acesso ao mirante do Morro da Cruz é feito pela Rua do Antão (via Beira Mar Norte), por meio do bairro Agronômica.
+
+![Mirante Morro da Cruz](http://ndonline.com.br/uploads/2011/09/20-09-2011-16-47-25-a-cidade-vista-do-morro-da-cruz-08.07.11-foto-rosane-lima-2-.jpg)
 
 ## Pontos Turísticos - Região Norte
 
@@ -138,6 +149,8 @@ A fortaleza realmente é um lugar lindo, que vale a pena conhecer. É um forte p
 A entrada custa apenas 8 reais (4 para estudantes e idosos são isentos). O acesso para a fortaleza entretanto é um pouco complicado se você for de carro. O caminho é uma subida bastante íngreme com abertura dos dois lados e dois carros passam com bastante cuidado. Portanto, se for de carro pode deixar o carro embaixo (perto do último ponto de ônibus de Jurerê) e subir a pé. Se você subir de carro, é possível descer para a praia do Forte também de carro. Fique ligado! Areia na pista pode complicar sua subida, ok? 
 
 Enfim, uma vez lá em cima, dê a volta no forte, veja o sol ou o pôr-do-sol na praia do Forte e aproveite o passeio histórico e a vista deslumbrante que você tem de lá de cima. A praia do forte conta com alguns restaurantes "de pé na areia", então também é válida para um happy hour.
+
+![Fortaleza](http://www.fortalezasmultimidia.com.br/santa_catarina/imagens/pontagrossag01.jpg)
 
 #### Passeio de Barco Ilhas na Baía Norte
 Um passeio de barco por floripa é uma ótima pedida, especialmente se o dia não tiver perfeito para uma praia ou trilha. Existem passeios pela lagoa da conceição (na média de 10 reais por pessoa) mas a recomendação é o passeio para visitar as fortalezas de Ratones e Ainhatomirim. As fortalezas são construções portuguesas do século XVIII para defesa da ILha do Desterro e estão atualmente sob supervisão da Universidade Federal de Santa Catarina. O passeio pode ser feito de dois modos:  
@@ -155,6 +168,8 @@ A região conta com diversos restaurantes famosos por sua culinária como o Mari
 
 Além disso, vale uma visita à Igreja de Nossa Senhora das Necessidades, construída em 1757 e uma das principais feições da cultura barroca no Sul do Brasil. 
 Lojas de artesanatos e cerâmica também podem ser encontradas nas casas com formato típico açoriano, com as janelas diretamente nas calçadas. 
+
+![Santo Antonio](http://s1208.photobucket.com/user/jffaraco/media/2718b293.jpg.html?t=1290633873)
 
 #### Água Show Park
 
